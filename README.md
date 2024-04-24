@@ -1,11 +1,12 @@
 
-![inori_yuzuriha___anime_proxer_header_by_mddesignz-d7nhml1](https://github.com/Seo-des/Seo-des/assets/43203180/86f371c6-056f-4bab-922c-c5a50faa9458)
 
 
 ### Hi there 👋
 
 # Seo
 #### *B.C.S Student*
+
+Jobless
 
 Balikpapan, Indonesia 
 
@@ -16,7 +17,6 @@ Balikpapan, Indonesia
 
            
 
-![tumblr_static_8kr7p0c4posocogwgo4sko4cs](https://github.com/Seo-des/Seo-des/assets/43203180/32fef9bb-c951-4826-9eab-abea3249aa92)
 
                                                   
                                                                  
