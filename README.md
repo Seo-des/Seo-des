@@ -5,11 +5,16 @@
 ### Hi there 👋
 
 # Seo
-*B.C.S Student*
+#### *B.C.S Student*
 
-Universitas Siber Asia
+Balikpapan, Indonesia 
 
-Balikpapan, Indonesia            
+# Education
+- 2022.09-*Present* Universitas Siber Asia B.C.S
+
+#
+
+           
 
 ![tumblr_static_8kr7p0c4posocogwgo4sko4cs](https://github.com/Seo-des/Seo-des/assets/43203180/32fef9bb-c951-4826-9eab-abea3249aa92)
 
