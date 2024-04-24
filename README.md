@@ -1,5 +1,6 @@
 
-![ako_header_da_by_sonicogfx-da39b37](https://github.com/Seo-des/Seo-des/assets/43203180/038ad838-9e33-4476-ab5e-eec69a91ab5e)
+![inori_yuzuriha___anime_proxer_header_by_mddesignz-d7nhml1](https://github.com/Seo-des/Seo-des/assets/43203180/86f371c6-056f-4bab-922c-c5a50faa9458)
+
 
 ### Hi there 👋
 
@@ -10,11 +11,10 @@ Universitas Siber Asia
 
 Balikpapan, Indonesia            
 
+![tumblr_static_8kr7p0c4posocogwgo4sko4cs](https://github.com/Seo-des/Seo-des/assets/43203180/32fef9bb-c951-4826-9eab-abea3249aa92)
 
                                                   
                                                                  
-![20b03cfede078b40ea9efadcc1aa2a49](https://github.com/Seo-des/Seo-des/assets/43203180/2da85d22-3025-4cac-babc-ea263f820ad0)
-
 
 <!--
 **Seo-des/Seo-des** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
