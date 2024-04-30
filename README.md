@@ -10,6 +10,8 @@ Jobless
 
 Balikpapan, Indonesia 
 
+Seo-des.github.io 
+
 # Education
 - 2022.09-*Present* Universitas Siber Asia B.C.S
 
