@@ -3,7 +3,7 @@
 
 ### Hi there 👋
 
-# Seo
+# Ade Sutresno
 #### *B.C.S Student*
 
 Jobless
