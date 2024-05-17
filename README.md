@@ -13,7 +13,7 @@ Balikpapan, Indonesia
 Seo-des.github.io  *(Work on progress)*
 
 # Education
-- 2022.09-*Present* Universitas Siber Asia B.C.S
+- 2022.09-*Present* Asia Cyber University B.C.S
 
 #
 
