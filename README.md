@@ -4,7 +4,7 @@
 ### Hi there 👋
 
 # Ade Sutresno
-#### *B.C.S Student*
+#### *B.S Student*
 
 Jobless
 
